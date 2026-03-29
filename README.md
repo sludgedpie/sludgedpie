@@ -1,2 +1,2 @@
-![](https://pbs.twimg.com/media/HDU_5RDaMAM5-RZ?format=jpg&name=240x240)
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRxp9E25BsnUpJMtW9-mixik3HllLEXn47g4Q&s)
 
