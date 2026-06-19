@@ -1,1 +1,1 @@
-![](https://clock1423stupio.carrd.co/assets/images/image01.gif?v=797be667)
+![](https://static.wikia.nocookie.net/great-god-grove/images/3/3c/Spektafry_Steam.png/revision/latest/scale-to-width-down/1000?cb=20260204153458)
